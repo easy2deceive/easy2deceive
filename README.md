@@ -10,10 +10,10 @@
 
 ![f4823346](https://github.com/easy2deceive/easy2deceive/assets/170835376/e869a2e0-f350-48f3-adf3-5783ddd417f9)
 
-![dd40e263](https://github.com/easy2deceive/easy2deceive/assets/170835376/13eba25d-0646-4b23-9f8b-89ead0aa7a38) 𝔦𝔫𝔱 : pjo, spiderverse, artfight, demon slayer, unproblematic fandoms, yaelokre, adventure time ![dd40e263](https://github.com/easy2deceive/easy2deceive/assets/170835376/13eba25d-0646-4b23-9f8b-89ead0aa7a38)
+![95843982](https://github.com/easy2deceive/easy2deceive/assets/170835376/a41baf68-98ca-4598-a0e1-a7d8b87c61ec) 𝔦𝔫𝔱 : pjo, spiderverse, artfight, demon slayer, unproblematic fandoms, yaelokre, adventure time ![95843982](https://github.com/easy2deceive/easy2deceive/assets/170835376/a41baf68-98ca-4598-a0e1-a7d8b87c61ec)
 
-![4f397397](https://github.com/easy2deceive/easy2deceive/assets/170835376/7994a978-4201-4916-beec-d47a3a36a3d8)
- 𝔦𝔴𝔠 : genshin ![4f397397](https://github.com/easy2deceive/easy2deceive/assets/170835376/7994a978-4201-4916-beec-d47a3a36a3d8)
+![95843982](https://github.com/easy2deceive/easy2deceive/assets/170835376/a41baf68-98ca-4598-a0e1-a7d8b87c61ec)
+ 𝔦𝔴𝔠 : genshin ![4f397397]![95843982](https://github.com/easy2deceive/easy2deceive/assets/170835376/a41baf68-98ca-4598-a0e1-a7d8b87c61ec)
 
 ![039904ef](https://github.com/easy2deceive/easy2deceive/assets/170835376/73135425-46bd-4010-9adf-94c3ce48f70b) 𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans ![039904ef](https://github.com/easy2deceive/easy2deceive/assets/170835376/73135425-46bd-4010-9adf-94c3ce48f70b)
 
