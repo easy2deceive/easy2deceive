@@ -3,3 +3,15 @@
 𝔤𝔥𝔬𝔰𝔱𝔦𝔢
 
 *ೃ༄ 𝔥𝔢/𝔥𝔦𝔪 : 𝔰𝔥𝔢/𝔥𝔢𝔯
+
+↶*ೃ✧˚. ❃ ↷ ˊ-
+
+𝔤𝔞𝔪𝔢𝔰 𝔦 𝔭𝔩𝔞𝔶: ponytown, roblox, minecraft
+
+↶*ೃ✧˚. ❃ ↷ ˊ-
+
+𝔦𝔫𝔱 : pjo, spiderverse, artfight, demon slayer, unproblematic fandoms, yaelokre, adventure time
+
+𝔦𝔴𝔠 : genshin
+
+𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans
