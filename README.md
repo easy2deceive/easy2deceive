@@ -10,14 +10,14 @@
 
 ![f4823346](https://github.com/easy2deceive/easy2deceive/assets/170835376/e869a2e0-f350-48f3-adf3-5783ddd417f9)
 
-![dd40e263](https://github.com/easy2deceive/easy2deceive/assets/170835376/13eba25d-0646-4b23-9f8b-89ead0aa7a38) 𝔦𝔫𝔱 : pjo, spiderverse, artfight, demon slayer, unproblematic fandoms, yaelokre, adventure time
+![dd40e263](https://github.com/easy2deceive/easy2deceive/assets/170835376/13eba25d-0646-4b23-9f8b-89ead0aa7a38) 𝔦𝔫𝔱 : pjo, spiderverse, artfight, demon slayer, unproblematic fandoms, yaelokre, adventure time ![dd40e263](https://github.com/easy2deceive/easy2deceive/assets/170835376/13eba25d-0646-4b23-9f8b-89ead0aa7a38)
 
 𝔦𝔴𝔠 : genshin
 
-𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans ![dd40e263](https://github.com/easy2deceive/easy2deceive/assets/170835376/13eba25d-0646-4b23-9f8b-89ead0aa7a38)
+𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans
 
 ![f4823346](https://github.com/easy2deceive/easy2deceive/assets/170835376/e869a2e0-f350-48f3-adf3-5783ddd417f9)
 
-𝔭𝔬𝔫𝔶𝔱𝔬𝔴𝔫 : i play on the safe server almost daily. i can be found in at benches outside library or the spiderverse/marvel area beside the bakery. if i'm not there, i'm not online or i'm at a secluded part of the map.
+![2bc46063](https://github.com/easy2deceive/easy2deceive/assets/170835376/f3d0788c-07ce-469f-aac1-9a365220e18e) 𝔭𝔬𝔫𝔶𝔱𝔬𝔴𝔫 : i play on the safe server almost daily. i can be found in at benches outside library or the spiderverse/marvel area beside the bakery. if i'm not there, i'm not online or i'm at a secluded part of the map. ![2bc46063](https://github.com/easy2deceive/easy2deceive/assets/170835376/f3d0788c-07ce-469f-aac1-9a365220e18e)
 
-𝔞𝔯𝔱𝔣𝔦𝔤𝔥𝔱 : my artfight is ~easy2deceive . feel free to attack! i always prioritize revenge.
+![e928986d](https://github.com/easy2deceive/easy2deceive/assets/170835376/2ba946b4-1d25-4111-963b-59f8f4753a3c) 𝔞𝔯𝔱𝔣𝔦𝔤𝔥𝔱 : my artfight is ~easy2deceive . feel free to attack! i always prioritize revenge. ![e928986d](https://github.com/easy2deceive/easy2deceive/assets/170835376/2ba946b4-1d25-4111-963b-59f8f4753a3c)
