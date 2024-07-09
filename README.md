@@ -16,4 +16,4 @@
 
 𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans
 
-![e020e570](https://github.com/easy2deceive/easy2deceive/assets/170835376/4653c9a1-e151-4b7c-b719-148795458ff0)
+![e020e570](https://github.com/easy2deceive/easy2deceive/assets/170835376/4653c9a1-e151-4b7c-b719-148795458ff0) ![a41a4ddb](https://github.com/easy2deceive/easy2deceive/assets/170835376/db884639-07bc-49d9-acbe-bf2bbad4511a)
