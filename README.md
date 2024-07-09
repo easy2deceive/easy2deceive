@@ -15,3 +15,5 @@
 𝔦𝔴𝔠 : genshin
 
 𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans
+
+![e020e570](https://github.com/easy2deceive/easy2deceive/assets/170835376/4653c9a1-e151-4b7c-b719-148795458ff0)
