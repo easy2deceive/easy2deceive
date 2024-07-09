@@ -10,15 +10,14 @@
 
 ![f4823346](https://github.com/easy2deceive/easy2deceive/assets/170835376/e869a2e0-f350-48f3-adf3-5783ddd417f9)
 
-![95843982](https://github.com/easy2deceive/easy2deceive/assets/170835376/a41baf68-98ca-4598-a0e1-a7d8b87c61ec) 𝔦𝔫𝔱 : pjo, spiderverse, artfight, demon slayer, unproblematic fandoms, yaelokre, adventure time ![95843982](https://github.com/easy2deceive/easy2deceive/assets/170835376/a41baf68-98ca-4598-a0e1-a7d8b87c61ec)
+𝔦𝔫𝔱 : pjo, spiderverse, artfight, demon slayer, unproblematic fandoms, yaelokre, adventure time
 
-![6ea1aa1d](https://github.com/easy2deceive/easy2deceive/assets/170835376/cd43fd40-a5b2-43c0-a30f-c59f5c7cd2b0)
- 𝔦𝔴𝔠 : genshin ![6ea1aa1d](https://github.com/easy2deceive/easy2deceive/assets/170835376/cd43fd40-a5b2-43c0-a30f-c59f5c7cd2b0)
+𝔦𝔴𝔠 : genshin
 
-![039904ef](https://github.com/easy2deceive/easy2deceive/assets/170835376/73135425-46bd-4010-9adf-94c3ce48f70b) 𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans ![039904ef](https://github.com/easy2deceive/easy2deceive/assets/170835376/73135425-46bd-4010-9adf-94c3ce48f70b)
+𝔡𝔫𝔦 : tcoaa, mha, hazbin/helluva boss, vivzie fans
 
 ![f4823346](https://github.com/easy2deceive/easy2deceive/assets/170835376/e869a2e0-f350-48f3-adf3-5783ddd417f9)
 
 ![2bc46063](https://github.com/easy2deceive/easy2deceive/assets/170835376/f3d0788c-07ce-469f-aac1-9a365220e18e) 𝔭𝔬𝔫𝔶𝔱𝔬𝔴𝔫 : i play on the safe server almost daily. i can be found in at benches outside library or the spiderverse/marvel area beside the bakery. if i'm not there, i'm not online or i'm at a secluded part of the map. ![2bc46063](https://github.com/easy2deceive/easy2deceive/assets/170835376/f3d0788c-07ce-469f-aac1-9a365220e18e)
 
-![e928986d](https://github.com/easy2deceive/easy2deceive/assets/170835376/2ba946b4-1d25-4111-963b-59f8f4753a3c) 𝔞𝔯𝔱𝔣𝔦𝔤𝔥𝔱 : my artfight is ~easy2deceive . feel free to attack! i always prioritize revenge. ![e928986d](https://github.com/easy2deceive/easy2deceive/assets/170835376/2ba946b4-1d25-4111-963b-59f8f4753a3c)
+![df273bf9](https://github.com/easy2deceive/easy2deceive/assets/170835376/fba47b91-0b90-46ea-b4e0-75c342bb9439) 𝔞𝔯𝔱𝔣𝔦𝔤𝔥𝔱 : my artfight is ~easy2deceive . feel free to attack! i always prioritize revenge. !!![df273bf9](https://github.com/easy2deceive/easy2deceive/assets/170835376/fba47b91-0b90-46ea-b4e0-75c342bb9439)
