@@ -22,8 +22,6 @@
 
 ![2bc46063](https://github.com/easy2deceive/easy2deceive/assets/170835376/f3d0788c-07ce-469f-aac1-9a365220e18e) 𝔭𝔬𝔫𝔶𝔱𝔬𝔴𝔫 : i play on the safe server almost daily. i can be found in at benches outside library or the spiderverse/marvel area beside the bakery. if i'm not there, i'm not online or i'm at a secluded part of the map. ![2bc46063](https://github.com/easy2deceive/easy2deceive/assets/170835376/f3d0788c-07ce-469f-aac1-9a365220e18e)
 
-![df273bf9](https://github.com/easy2deceive/easy2deceive/assets/170835376/fba47b91-0b90-46ea-b4e0-75c342bb9439) 𝔞𝔯𝔱𝔣𝔦𝔤𝔥𝔱 : my artfight is ~easy2deceive . feel free to attack! i always prioritize revenge. !!![df273bf9](https://github.com/easy2deceive/easy2deceive/assets/170835376/fba47b91-0b90-46ea-b4e0-75c342bb9439)
-
 ![f4823346](https://github.com/easy2deceive/easy2deceive/assets/170835376/e869a2e0-f350-48f3-adf3-5783ddd417f9)
 
 ![image_2024-07-09_042041064](https://github.com/easy2deceive/easy2deceive/assets/170835376/a54a6051-66b2-4c22-b3fd-a97716860498)
