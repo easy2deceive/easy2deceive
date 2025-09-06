@@ -23,7 +23,7 @@
 <br />
 <div align="center"> interests </div>
 <br />
-<div align="center"> heres just a list of what i like/liked!! some more than others.. forsaken, die of death, nocturnals, percy jackson, pizza game, welcome home (fandom sucks), fnaf, tlou, twd (game), arcane lol (show), the promised neverland, ocs (ask abt them and ill yap for hours!!!) </div>
+<div align="center"> heres just a list of what i like/liked!! some more than others.. forsaken, die of death, nocturnals, percy jackson, pizza game, welcome home (fandom sucks), fnaf, tlou, epic:tm, twd (game), arcane lol (show), the promised neverland, ocs (ask abt them and ill yap for hours!!!) </div>
 <br />
 <div align="center"> <img width="400" height="423" alt="I HEART" src="https://github.com/user-attachments/assets/8245f527-304a-4de3-b237-87869ea1a23d" /> </div>
 <br />
