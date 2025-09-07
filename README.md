@@ -12,7 +12,7 @@
 <div align="center"> byi </div>
 <br />
 <div align="center"> i get awkward very very easy unless im close to u.. just a warning! i try my best to be myself though ^^. i tend to hangout around spawn, in the mountain area, or outside the bakery. </div>
-<div align="center"> i play alone sometimes, but i can usually be seen with my closest oomf eden and faris. </div>
+<div align="center"> i play alone sometimes, but i can usually be seen with my oomfs eden and faris. </div>
 <div align="center"> please do NOT copy my skins unless it's a gift or i explicitly say you can, i take a lot of time on them. using them as LIGHT inspiration is still a little iffy to me, but i can let it slide. </div>
 <br />
 <br />
