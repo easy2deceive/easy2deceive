@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=your-github-username&color=yellow)
 <div align="center"> ' all ur base are belong 2 me!1! ' </div>
 <div align="center"> <img width="400" height="400" alt="CHICKEEEE" src="https://github.com/user-attachments/assets/e9e65911-1328-4050-b01b-9122f6307c45" /> </div>
 
@@ -31,5 +32,3 @@
 <br />
 <br />
 <div align="center"> graphics cred: [one](https://www.tumblr.com/hypnotizedbyhate) , [two](https://www.tumblr.com/gracesinner) </div>
-
-
